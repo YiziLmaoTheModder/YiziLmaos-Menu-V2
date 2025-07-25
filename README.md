@@ -1,2 +1,2 @@
 # YiziLmaos-Menu-V2
-This menu will be released soon with a bunch of stuff and categories!
+im making this menu paid so uhhh
